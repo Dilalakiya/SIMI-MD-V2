@@ -2,7 +2,7 @@
 
 <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
 
-## ✅𝐓𝐇𝐄 𝐁𝐎𝐓 𝐈𝐒 MAKE BY MR DILA💯
+## ✅𝐓𝐇𝐄 𝐁𝐎𝐓 𝐈𝐒 MAKE BY MR DILA AND W.U. OFC💯
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=▇+▇+▇+▇+▇+▇+▇)](https://git.io/typing-svg) 
 
@@ -103,7 +103,7 @@
 ## CONTACT ENZOTECH HERE
   DM FOR SERIOUS BUSINESS
 
-   <a href="https://github.com/ENZOTECH2/ENZO-INFO"><img title="CONTACT-ENZO" src="https://img.shields.io/badge/CONTACT-ENZO-h?color=black&style=for-the-badge&logo=audi" width="240" height="45.45"/></a></p>
+   <a href="https://github.com/Dilalakiya/SIMI-MD-V2/edit/main/-INFO"><img title="CONTACT-ENZO" src="https://img.shields.io/badge/CONTACT-ENZO-h?color=black&style=for-the-badge&logo=audi" width="240" height="45.45"/></a></p>
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
