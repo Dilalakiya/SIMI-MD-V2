@@ -14,7 +14,7 @@ Get New Version__😎✔
 
 
 
-# 👨‍💻 *SESSION MADE BY MASTER MIND* 👨‍💻
+# 👨‍💻 *SESSION MADE BY mr Dila* 👨‍💻
 
 
 ## *NOTE*
